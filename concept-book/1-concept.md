@@ -146,3 +146,9 @@ So when a primary philosophy is gained, what if the pride of the learner motivat
 So a project is a volunteer act, it doesn't come from goals, it is the goal, it comes from ideas. Only if you care, project starts. So care > project.
 
 Everything we do is from a perspective. A perspective that comes from our narratives, flows and all. So every idea delivered is actually from a perspective.
+
+Every story is from a perspective, so every story is a perspective in terms. Flow control is controlling. Perspectives are the tiny tiny range of learning techniques that allow to take one information far accurately, express an information far accurately. Perspectives are harmony, melodious, cinematic.
+
+So let me list all the frameworks needed -
+
+1. Learning evolution - primary philosophy, secondary philosoophy, advanced taxonomy

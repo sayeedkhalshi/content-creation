@@ -1,4 +1,4 @@
-What Is Intelligence Actually?
+What Is Intelligence Actually? I do not expect you to understand this initial chapter called "concept". But if you do, you will see, it's a attempt to connect all those theories I have, not to explain those theories. I meant the bigger picture first, the
 
 ## What Is Intentional Being?
 

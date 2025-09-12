@@ -45,6 +45,8 @@ The fundamental of economics is trading control. On the surface, it may look lik
 
 A simple way to understand this would be identifying all the influences over us. But it's tricky to identify all of them. There are hidden things like, hidden character flows and perspectives that are running us. There are spiritual entities that we can't see but have huge influence on us. There is God, alien, conspiracies or anything we know, don't know has influence over us.
 
-My acknowledgement theory says, you can't build a problem free structure, if that structure don't acknowledge everything it has power over.
+My acknowledgement theory says, you can't build a problem free structure, if that structure don't acknowledge everything it is influenced by.
 
-The logic is, trading control is the biggest game there is.
+The logic is, trading control is the biggest game there is. Then you need to acknowledge, each and every influence on this.
+
+A mathematical structure works for dead objects. For an intentional being, mathematical outcomes are manipulated and neglegable in a control structure. But still the fundamental of set persists, you need to be together to have a control structure.

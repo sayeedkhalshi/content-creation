@@ -1,0 +1,1 @@
+Bigger Picture theory is, you learn the bigger picture first to see where it fits in your concept of human context, then you can learn micro topics. You will have a prediction model to understand micro topics the best and you will know where to fit them.

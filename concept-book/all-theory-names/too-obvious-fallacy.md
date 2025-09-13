@@ -1,0 +1,1 @@
+That thinking something too obvious that it doesn't have to be conversed or someone trying to think something is too much they can't handle are both wrong. As obvious things are building blocks, learning to say them loud, makes you see things hidden or made by them.

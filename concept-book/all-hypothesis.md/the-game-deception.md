@@ -18,4 +18,4 @@ In action - projection framework, this goes in action part.
 
 Also control structure automatically builds the pyamid model, where the provider of the structure are usually on top.
 
-Now, because all made by a intentional being are control structure, there is deception by default, where decision is critical, game theory applies
+Now, because all structure made by a intentional being are control structure, there is deception by default, where decision is critical, game theory applies. But if the

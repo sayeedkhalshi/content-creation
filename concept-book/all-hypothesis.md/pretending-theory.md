@@ -1,0 +1,1 @@
+When there is no love, there is hate. But sometimes we pretend like no loe and no hate, but neutral. There is no neutral, you just don't know it yet to have them or your knowing is going on you haven't decided. Come to me when you decide

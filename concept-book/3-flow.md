@@ -1,11 +1,7 @@
 # Flow
 
-## Adaptibility
+If everything in this universe is moving, everything has a flow. Flow attracts others close to it. That's one property. Flow has many properties. But for human character, the concept of Learning Flow, which I also call just flow out of my intrusive thoughts, is something that makes a learning running without consciously ordering it to happen in need. It means that flow has passed the criteria to be a flow to be trusted to work perfectly autonomously without new adjustment while doing it. This is why it's not easy to create a flow in your character.
 
-Every flow has a frequency. If you synchronize with that frequency, we get into that flow. So, spiritually anyone one try get into divine world y matching the divine flow. If we do that, a computer brain that is done by frequency as a data mapping point to connect logic, that would be a main flow or consciousness
+The reason I call it flow because everything in our brain is like a flow, anything in it keeps going on, like towards one or many direction. That's why I say flows are directional. But In our brain also each flow staying has a meaning attached to it. It's not just something, it has a meaning, and we remember it using that meaning. That meaning is the story of it, so everything also a story and every story has a narrative. This is how narrative theory comes in. Though fundamentally, every neuron or neuron groups has a purpose, which means a flow, with a story and a narrative and other properties also.
 
-Cycles are sometimes interrupted to make it own. Some cycles are natural and some cycles are made by us. Which are artificial cycles, that has to go through each phase, what I call learning pots to fill.
-
-Adaptibility is when you can end a cycle at any time. But this doesn't happen smoothly. Specially when we know if we don't go full cycle we will miss a lot of learning and we won't go full experience. Now that we haven't learned ut fully, it illogical to end a cycle.
-
-One of the biggest property of intelligence is controlling flow by creating, ending, completing or ending without completing, redirecting etc.
+Every flow has a frequency. If you synchronize with that frequency, we get into that flow. So, spiritually anyone trying get into divine world by matching the divine flow. (If we do that in a computer brain that is done by frequency as a data mapping point to connect logic, that would be a main flow or consciousness)

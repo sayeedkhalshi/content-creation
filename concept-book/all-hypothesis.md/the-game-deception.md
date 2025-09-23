@@ -19,3 +19,9 @@ In action - projection framework, this goes in action part.
 Also control structure automatically builds the pyamid model, where the provider of the structure are usually on top.
 
 Now, because all structure made by a intentional being are control structure, there is deception by default, where decision is critical, game theory applies. But if the
+
+If it's a uncontrolled structure, it could be trusted, but there is no uncontrol structure.
+
+So we should try to make a structure that acknowledges the rules of a control structure with authenticity. The properties of a control structure are recommended flows, hidden flows, providers, enforcers, users.
+
+The closest thing to a uncontrolled structure is a group of people whe you need to pretend to be uncontrolling

@@ -79,15 +79,17 @@ When you ask someone to learn something that you processed for decades, they jus
 Anyway, getting off a flow is unlearning that thing. It's a lot of process and lot of connecions and threads, techniques and processes to be evaluated.
 It takes a lot. Humans have many micro and macro flows in themselves. Then our social context, human context, economics, the universe etc have many many grand and micro flows that we can't even see.
 
-The more intelligent entities should see more flows, would be able to control learning and unlearning, getting in and out, reuse, influence others flows etc. The more control over flows the more intelligence. Basically intelligence in pattern matching in flows and changes and having control over them. Character is how a person flows in life, it's their style, it's state and we can snippet a momentum of their life to see how they flows.
+The more intelligent entities should see more flows, would be able to control learning and unlearning, getting in and out, reuse, influence others flows etc. The more control over flows the more intelligence. Basically intelligence in pattern matching by flows and changes and having control over them. Character is how a person flows in life, it's their style, it's state and we can snippet a momentum of their life to see how they flows. 'Learning character' is
 
 Now when a person have things in their character, doesn't mean they would want to do it until their personal narratives still kicking for it. Every person is a story. The story itself the memory of the person built upon small stories, all made into bigger stories, layers of stories. Those stories and memories are the person itself, without them, the person is no more.
 
 So learning characters are made into stories. Now they are in narratives. Stories make us move. Story has narratives, narratives makes us predict the next move of our action. For example, if you are slicing potato, next thing you will cook it and eat it. Very reasonable fit in the narrative, you wouldn't go to moon and fly. So the continuity is preicted. So what you learn next is predicted by your narratives. This narrative can have seperation for manuy people with family, people, earning, properties, jobs, leanring etc and makes us overwhelmed just because we teared apart our narrative and ran all of them simultenously.
 
+So the idea is, pick any dumb person and find what's the one story that they haven't forgotten, that story building from the time they can remember. The story connects all his stories, that story is so complex, the data points are so complex, it has to manage a lot of narratives and still that person doing that perfectly, even he can be mentally dysfunctional. That one story is the identity of the person, that story is the person itself. Idea is anyone can learn if it fits the story.
+
 Genuinely a person wouldn't be able to do things, all aren't same narrative build up. Possibly from early age of life.
 
-So, if your brain asks your hand to do two things in the same time, your hand wouldn't be able to. If two hands can do two things, that's performance degradation.
+So, if your brain asks your hand to do two things in the same time, your hand wouldn't be able to. If two hands can do two things, that's performance degradation. That's single state of action mind.xs
 
 A person of physics property like vibes/frequency, momentum, speed, rest etc. If your hand, brain, legs, body all are not vibing aligned, they no way you are going to perform.
 
@@ -109,7 +111,7 @@ Hormones, are tools to control humans. Their need and necessity, limits, cycles 
 
 ## Care
 
-Care is the last phase of learning. Our narrative predicts our next movement. But what if we care about our next movement or that narrative. Then it's become fully vibed, enrgized, hormonally charged. That's why care phase makes us economically active. That's why all the things in the world is to takeover this phase along with narratives. The smart people thinks we shouldn't think of hormonal care and our story that much, making is not analyze how the whole world of stupid people who have active care and story running energized body to be used fot the care set by ultra geniuses to runt he world.
+Care is the last phase of learning. Care phase is where economics lives. Our narrative predicts our next movement. But what if we care about our next movement or that narrative. Then it's become fully vibed, enrgized, hormonally charged. That's why care phase makes us economically active. That's why all the things in the world is to takeover this phase along with narratives. The smart people thinks we shouldn't think of hormonal care and our story that much, making is not analyze how the whole world of stupid people who have active care and story running energized body to be used fot the care set by ultra geniuses to runt he world.
 
 # Acknowledgements Framework or decision making phase
 
@@ -149,6 +151,35 @@ Everything we do is from a perspective. A perspective that comes from our narrat
 
 Every story is from a perspective, so every story is a perspective in terms. Flow control is controlling. Perspectives are the tiny tiny range of learning techniques that allow to take one information far accurately, express an information far accurately. Perspectives are harmony, melodious, cinematic.
 
+So telling you the minimal learning cycle here. A person takes an information from perception, because you have a purpose, the narrative is set by your perception decides take what to take or skip. Your narrative comes from your flow, where learning flow has a scale called vibe. If the whole body and mind aren't vibing enough, the flow will bad confused, the reality will be confused to help you. Now your decision to do it comes from care scale. Decesion is suggested by your narratives(flow) continuity(learning techniques etc). Where all flows make into your learning character. But flows are made by conscious 'learning intentions'. Learning intentions comes your learning philosophy, philosophy becomes intention. Then philosophy comes your unconscous learning processes, that are learning threads, each threads are created by acknowledgements, acknowledgements created by learning techniques, learning techniques are what we use to reshape, filter, skip, deny and acknowledge a information, the information comes from our actions or direct information. Our action and decision to act and learn comes from care scale and decisions comes from our learning techniques in the projection phase. In between, take breaks, recycle, repeat. But all those things happen because each phase in this cycle has limit that forces us to do a minimal workaround without overflowing our limited resources. Then the whole process also gets overwhelemed at some point. This allows the brain to takeover and get off from all the micro flows effecttively and instantly to make the whole process go smooth. Then we breakup, rest, unconsciously process recycle through the whole process next. Then we gain philosophy again. This rest in included in the action projection framework.
+
+To develope a learning framework, we can use everything above as theories. You can do it anyway you want, but the fundamentals must exist. Only one rule, it must enforce the properties a uncontrolled structure, or it will break. The purpose is to find the building blocks of philosophy, understanding and creating learning process, a learning framework as same as our brain. But also my Goal is to solve -
+
+1. Why you can't learn, even if you want
+2. How control structure destroys society's humanistic value
+3. Smooth learning experience
+4. Creating uncontrolled structure as an education system
+
+Amazing Learning System. But to sove the biggest question, why can't we learn, in a education system we have to acknowledge all the frameworks we can think of.
+
+Fundamental frameworks we need -
+
+1. Action - projection framework
+2. Care phase
+3. Learning cycle
+4. Learning evolution
+5. Learning Techniques
+6. Learning Techniques
+7. Narratives
+
 So let me list all the frameworks needed -
 
-1. Learning evolution - primary philosophy, secondary philosoophy, advanced taxonomy
+4. Learning evolution - primary philosophy, secondary philosoophy, advanced taxonomy
+5. Learning Techniques -
+   a. Acknowledgements, denials
+6. Learning Processing
+7. Flow and Recommended flow frameworks
+8. Action Projection Framework
+9. Learning cycle - Internally influenced learning
+10. Perception
+11. Purpose

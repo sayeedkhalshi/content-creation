@@ -20,3 +20,17 @@ Human interaction models have a really, really big issue, a big connection with 
 In interaction, single state of action mind creates a lot of manipulative things. Then creating flows with hormonal reward to make them forget the previous thing as human action mind only can see one at a time, if the flow doesn't go away, its strongly flowing
 
 The positive predictiblity is the thing we always to do in a interaction. But we will deep dive in all later.
+
+Economics structure
+Care scale results commitment
+The base of economics purposeful interaction
+The base of purposeful interaction is economic gain.
+Gain is inside a structure
+Structure has to be made and community has to be grown
+The base of economics structure is community
+The base of community is to assist each other to help their gain
+The base of economical commitment is the availability
+Two type of structure and gain\
+Gamified or psychological - availability is the parameter to be used as measuring unit in human context based on the rule of ‘single state of action mind - says only thing we know that's happening in the mind and we don’t know what’s not happening now. Gaming(Hide and seek) on that can take us to higher leverage, the game is actually the main negotiation of how much control you wanna give away and how much you can take over
+Here comes my flow theory - that you can make people acknowledge (trust) some of your flow. Which is another law that means feeling your ‘recommended flow’ as good. Where ‘good’ comes from another law of believing of it purposeless (no economical gain, which comes from the law of spirituality where we help each other purposelessly, but spirituality also says we must hold our purpose, so the game allowed by even spiritually. The greatness comes from the combination of both, cunningness and bad karma comes from unhealthy cunningness as the simulation(kayanat) wouldn’t support and you will be on your own ). The game is to make people fall in a flow that you want them to be in and use it for purpose til its sounds healthy. This is how you build a structure that is always trying to be controlled. A community is a control structure. You care about the people who come in the purpose to help you and get help for their own economic gain. This is why experience people plays better because they know what happens when you join that particular new flow (part of the community) and know how to drive people on command. As time passes new ones get experience and hates the provider of the control structure. This hate comes from the same law of flow, because flow some properties, some of them are it’s hard to get on and it’s hard to get off. Some deeply acknowledged flow are hard to get on and we feel embarrassed of acknowledging that wrong flow or proud of the right flow. Usually this becomes really complex in society
+Physical - physical gain in assets (not important now)

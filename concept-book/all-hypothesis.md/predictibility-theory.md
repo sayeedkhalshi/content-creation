@@ -1,0 +1,1 @@
+The Predicitibility Theory - if einstein makes one discovery, likely he would make another because he knows how to think of a new discovery. So learning how a great inventor thinks will make many other people ready to discover more.

@@ -1,0 +1,1 @@
+What is the space where learning belongs? If it belongs to human context, then what is human context. Human context is chain of perspectives, where each perspectives only comes when you think about it. But the chain is multilayered, categorized. The main flow explains it better

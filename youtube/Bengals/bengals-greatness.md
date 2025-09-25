@@ -1,7 +1,7 @@
 no lets be real here. tell the truth. didn't we build many best thing on earth?
 
 1. Panther panchali - the greatest film on eart, can you even debate?
-2. Rabindra Sangeet - there is no other thing on earth like that, it's a standalone thing like nazrul too
+2. Rabindra Sangeet - there is no other thing on earth like that, it's a standalone thing along with nazrul.
 3. Nazrul Sangeet - you will never see wording so beautiful and metaphors so melodical
 4. Sarath's Novel - No one has ever shown the society like Sarath, no onw on earth, not even homer, but yes not philosophically rich, but that's not the point. Because west was unreachable, we had no cohesion with other civilization until now because of distance, what we did we did our own.
 5. Muslin, Jamdani - anyway comparable with any???

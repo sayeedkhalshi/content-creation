@@ -1,0 +1,3 @@
+Learning projection - brain do things by showing us a projection of what we want to see or what we see. Smothering effect id where brain makes our experience smooth by ignoring things we don’t want to see or we don’t understand or we hate to see or that triggers anxeity ptsd
+
+The learning math is math of describing our social context of everything from human brains perspective. A way to describe reality for us. The problem is proving a point, environment is the context. Context can in many level. Levels are the sense of being broader and smaller in greatness of the universe. The solution is us going on law to another law to prove the point. The laws are made by people and also accepted by people who passed a certain level. This will help make the development algo

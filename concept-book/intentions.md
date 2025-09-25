@@ -1,0 +1,1 @@
+Intention is something you want to do, but may not do because it's not in your flow yet. Intentions are vivid but not doable because of not being a flow or character or just simply not because of dependency of neural connection.

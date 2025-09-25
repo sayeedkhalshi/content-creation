@@ -1,0 +1,1 @@
+A big part of learning is giving importance to eagerness. Importance means better learning processing. Brain shapes all learning based on your eagerness. You show importance explicitly by spending time on thinking, and uninterrupted processing after doing and thinking about it

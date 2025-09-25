@@ -1,0 +1,1 @@
+Consuming information is a small part of learning. Processing information in the brain is a much bigger and ignored part. Also doing, thinking about things, and subconscious thinking all are just consuming information. Processing is an unconscious process that comes afterward.

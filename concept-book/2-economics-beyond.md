@@ -154,6 +154,18 @@ The logic is, trading control is the biggest game there is. Then you need to ack
 
 A mathematical structure works for dead objects. For an intentional being, mathematical outcomes are manipulated and neglegable in a control structure. But still the fundamental of set persists, you need to be together to have a control structure.
 
+In chaos if there is no perspective, that can't be learned, can't be traced to where it comes from and leads to, that's true chaos.
+Generalized textbook answers all are unnatural to make us not learn.
+answering with a Asskissing perspective is when devil personally misled you to do direct hard.
+
+The patterns you look doesn't lead anywhere is true chaos. Its a narrative without a story, without a father, without a mother.
+
+True chaos is actual definition of deception in human context. That a pattern is there to digest yet didn't lead anywhere.
+
 ## The community theory
 
 A control structure has a community and community has interactions.
+
+# Users
+
+What happens when users are fighting in a control structure, people want them to become controllabke by each other, so each other usually associate with each other, but the trick is being dissassociative and that's what we do as grow and be more intelligent.

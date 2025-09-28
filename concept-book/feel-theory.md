@@ -1,0 +1,6 @@
+Feel theory and hormonal wiring
+Feel Good, bad, or weird
+Good is immediate acknowledgement to not remember but to set in flow
+Bad is to not acknowledge to to unacknowledge so it’s not a learning. This way bad creates anxiety mood like if it’s learned it’s gonna be something I can’t control, or out of my narrative or totally out of my narrative things will have to learn (Totally out of narrative things not want to learn is a big factor in procrastination as your head is filled with confusion and can’t decide, this is why just writing it brings it in front and you can think and decide on that).
+Weird - this one acts like an immediate question, stays a question, starts a process, so stays in memory. Used for manipulative new learning process, used for being vibrant in the crowd of people and flows.
+Good don’t ask a question, that’s the whole point of acknowledgement (acknowledgement means good); bad can or may ask questions if it was ever revisited and normalized, otherwise thinking about the situation of bad is not intuitive in the beginning, people has to cross some level; but weird definitely hold in the brain like a question to solve and look for clue, so it gets enormous value to make people learn your shit

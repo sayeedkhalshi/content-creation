@@ -11,3 +11,13 @@ Getting the definition of topics or explanation of topics from the perspective o
 Learning perspective:- Perspective is the point of view. You look at something from certain point where there is infinite points. In learning, when you learn something, that learning, has a Characteristic or Learning Shape. You shape a learning by the perspective you use to learn it. You can learn a thing, but if you haven’t learned enough, means your brain isn’t trained to learn from the intended perspective. Learning intention is our brain’s intention to shape a learning from a perspective. Since our brain is week handling conscious thread, many of us hasn’t evolved much in this thus many can’t use their learning to shape from a intended perspective. Thus some people may appear dumb, but actually not. Deep down it’s the same pattern matching brain that needs to be train.
 You may something that’s from a perspective that has not much connection to real world
 May learn something in past from a perspective. Reshape that’s in future from a different intended perspective by revisiting as detailed as possible
+
+## The devil of perspectivelessness
+
+In chaos if there is no perspective, that can't be learned, can't be traced to where it comes from and leads to, that's true chaos.
+Generalized textbook answers all are unnatural to make us not learn.
+answering with a Asskissing perspective is when devil personally misled you to do direct hard.
+
+The patterns you look doesn't lead anywhere is true chaos. Its a narrative without a story, without a father, without a mother.
+
+True chaos is actual definition of deception in human context. That a pattern is there to digest yet didn't lead anywhere.

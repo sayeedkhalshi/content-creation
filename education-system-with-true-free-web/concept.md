@@ -6,6 +6,8 @@ Philosophically management is the biggest problem ever on web, and the solution 
 2. Game like UI
 3. Integrated with browser and blockchain wallet
 4. Non random narrative based content creation on web
+5. Non profit and no own owns it.
+6. Open source versioning of the system - all the theory used to create this medium are the base of it and people can improve upon, add or remove based on new found knowledge and based on improvement, people will vote and select new features of the software
 
 ### Decentralization and true persistence of data
 
@@ -28,4 +30,4 @@ All three packed in the desktop software.
 
 Inside the software, the education system I have been developing will be implemented. The education system is developed based on control theory, flow theory, narrative identity theory, game theory, perspective engineering, terms engineering and many more.
 
-Link to the concept of education system './../concept-book/1-concept.md' in this repo. (I am still pasting my text from google doc to github md files, so not all info there yet )
+Link to the concept of education system '[./../concept-book/1-concept.md](https://github.com/sayeedkhalshi/content-creation/blob/main/true-free-web/concept.md)' in this repo. (I am still pasting my text from google doc to github md files, so not all info there yet )

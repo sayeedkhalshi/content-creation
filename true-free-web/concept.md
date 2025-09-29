@@ -5,6 +5,7 @@ Philosophically management is the biggest problem ever on web, and the solution 
 1. A home like app interface on desktop
 2. Game like UI
 3. Integrated with browser and blockchain wallet
+4. Non random narrative based content creation on web
 
 ### Decentralization and true persistence of data
 

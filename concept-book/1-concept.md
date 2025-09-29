@@ -131,6 +131,8 @@ So decision/acknowldgement framework is when in the action projection framework,
 
 Now learned intuitives. What if there are advanced things in mmodern life we need to do. also managment
 
+There are
+
 ## Auto Clicker
 
 There are acknowledgements and denials in layers for each learning techniques that reshape and filter. Those techniques are set of logics. When someone talks and sclice through your techniques of filtering and reshaping, you just become numb. It rarely happens in a instant situation, if that happens, you just need to rebuild your barricades cause you are now hackable. Now a mindset or a mood basically a auto responder to a situation. A mood is a pack of direction given to act on a certain situation. The real problem is to fit the narrative and

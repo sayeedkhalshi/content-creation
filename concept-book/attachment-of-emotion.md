@@ -1,0 +1,1 @@
+Yet our brain can’t think of two things at a time. So any comparison is fully flawed and only smart emotional attachment helps us better judgement, decision making and finding solution. Attachments that are just trying to get in a flow and sit tight are dumb to perform in society or PTSDed.

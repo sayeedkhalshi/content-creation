@@ -12,7 +12,7 @@ Now, would you trade the control over chicken production to foxes from us?
 
 What is economics?
 
-Economics is people producing things, making things, and trading them with people for other things or money like universal exchanging tool. Everyone fullfilling their need by selling and buying. So, it's like the distribution of wealth between all the people, right? So, economics is like the process of distributing wealth to the people who want the money and who is working for the money.
+Economics is people producing things, making things, and trading them with people for other things or money like universal exchanging tool. Everyone fullfilling their need by selling and buying. So, it's like the distribution of wealth between all the people, right? So, economics is like the process of distributing wealth to the people who want the money and who is working for the money. But it works until people fulfills minmal need and ruins when people maximize their wants.
 
 Let me make it clear to you again. It's about people who want the money, who need the money. Because of the want and need, they work. And because of their work, they create the services or products.
 
@@ -20,9 +20,9 @@ At some point, people thought that they could just pile up the money, because th
 
 Since it's a free society, to stay rich, the need of economics is to, for the rich, it is needed to make other people not to produce the product that are massively needed, just they want to control the production of the product and distribution of the product, so they stay rich, thus this is where it becomes about control and trading control, that's why I say, trading control.
 
-Normally economics normally would re-distribute wealth accross every individual, if it's not controlled and maintained. This is why all kind of economic structure emerged out of manipulation.
+Normally economics normally would re-distribute wealth accross every individual, if it's not controlled and maintained. This is why all kind of economic structure emerged out of the desire to manipulate others.
 
-What this also says, piling up money to become rich is purely aritificial rich, if the production isn't controlled. Cause money isn't the real need, it's the artificial need, actual need is the product. The need for every human is limited and production of resources are also limited by each one. Normally this would be a harmony. But when you are piling money, the demand of money must be kept by controlling the production, this money becomes a need too. This also can be done easily with recommending artificial needs that's out of ordinary, made the rich create economical structure to persist the management of those recommended artificial needs(recommended flows). Thus the idea of economical institution came on the sight.
+What this also says, piling up money to become rich is purely aritificial rich, if the production isn't controlled. Cause money isn't the real need, it's the artificial need, actual need is the product. The need for every human is limited and production of the resources are also limited by each one. Normally this would be a harmony. But when you are piling money, the demand of money must be kept by controlling the production, this money becomes a need too. This also can be done easily with recommending artificial needs that's out of ordinary, made the rich create economical structure to persist the management of those recommended artificial needs(recommended flows). Thus the idea of economical institution came on the sight.
 
 It could self fullling exchange for all of us.
 
@@ -30,9 +30,9 @@ Then the modern developments for other needs, where knowledge is needed to be co
 
 Then knowledge could be acquired, so the ability of acquiring knowledge must be controlled too. This is how scientific fields like psychology started making the driver of learning 'anxiety' a disease.
 
-But still some people would learn and we need to drive them below care phase, where economics stays. This is why sociology or socially discussabilty of a topic in ruined and having charisma is oppressive aggression in modern world. This is how nerds get into sciences and social knowledge are not connectible to the narrative of sciences.
+But still some people would learn and we need to drive them below 'care phase', where economics stays. This is why sociology or socially discussabilty of a topic in ruined and having charisma is oppressive aggression in modern world. This is how nerds get into sciences and social knowledge are not connectible to the narrative of sciences.
 
-After that not many people exists to run a control structure provider. Then there still would be people passing all above hardles. This much people can be allowed or they could be to be controlled by direct wars.
+After that not many people exists to run a control structure as a 'provider'. Then there still would be people passing all above hardles. This much people can be allowed or they could be to be controlled by direct wars.
 
 Those are the things to say are economics. What if those still gives a huge limitation of concept about economics. Those are what we know, but what if there is more?
 

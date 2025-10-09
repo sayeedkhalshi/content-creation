@@ -24,4 +24,4 @@ If it's a uncontrolled structure, it could be trusted, but there is no uncontrol
 
 So we should try to make a structure that acknowledges the rules of a control structure with authenticity. The properties of a control structure are recommended flows, hidden flows, providers, enforcers, users.
 
-The closest thing to a uncontrolled structure is a group of people whe you need to pretend to be uncontrolling
+The closest thing to a uncontrolled structure is a group of people whe you need to pretend to be uncontrolling.

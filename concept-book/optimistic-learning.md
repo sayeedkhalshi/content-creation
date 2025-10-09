@@ -1,3 +1,5 @@
+## Optimistic Learning
+
 What happens after acknowledgement is people start accepting what they acknowledge, and every part of the brain would like to rewire based on that. It creates an environment to let it happen. It creates the state for that thread to believe in and progress on it.
 
 Optimistic learning, Narrative learning - maintaining a story while learning. If you tell your brain multiple stories and connect all the stories to make another main story then multitasking works.

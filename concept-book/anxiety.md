@@ -1,0 +1,1 @@
+Anxiety is the reaction of human while facing negative emotions. Embracing anxiety makes the thing real and explored but escaping anxiety is to make things simple. If you understood this two lines, you would unstand humanity.

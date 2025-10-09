@@ -1,3 +1,5 @@
+## Recommended Flow
+
 Recommended flow is the alcohol of human context. Acknowledgement is so hormonally rewarding that, we seek for it in all incoming recommended flow.
 
 The world is confusing, and you usually can’t think micro enough only to get biased in situations like this. We don’t have the social language to communicate depth like that.

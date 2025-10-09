@@ -34,6 +34,8 @@ But still some people would learn and we need to drive them below 'care phase', 
 
 After that not many people exists to run a control structure as a 'provider'. Then there still would be people passing all above hardles. This much people can be allowed or they could be to be controlled by direct wars.
 
+But what if the rich knows the cycle and now wants to control they always win the war. One they could stage fight with each other, but they wouldn't risk it. So they would use other people to fight for them. They would give them money and tell them what to do, eventually will create parties fighting each other but actually playing the script they were provided. This way in every cycle they always stay as top dog, but in secrecy.
+
 Those are the things to say are economics. What if those still gives a huge limitation of concept about economics. Those are what we know, but what if there is more?
 
 According to my acknowledgement theory, if you don't acknowledge all the parties influencing a control structure and according to my flow theory, if you don't consider all the recommended flows created by those influencers in our human context, we will always have problems in our life. According to cyclic nature, we would always reach the peak and fall and start over.
@@ -164,7 +166,11 @@ True chaos is actual definition of deception in human context. That a pattern is
 
 ## The community theory
 
-A control structure has a community and community has interactions.
+In a control structure a community flows ends in interactions. Community is a cohesion, a way to synchronize their goal among everyone. But the moment there is a cheating, even if it's not told or known to anyone, it will break interbrain synchronicity. one person
+
+In interaction, the suggestion from narrative sounds like a intuition. In a control structure, your intuition can be used to track down your progress in a control structure and feed you perspectives based on that.
+
+You see it's deception because a control structure and we needed to put people on our recommended flow and use that on our need.
 
 # Users
 

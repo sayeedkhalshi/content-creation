@@ -1,0 +1,1 @@
+When you know the history of a person you know the person, when you know the current of a person, you have no idea what that person is. Similarly, any topics you need to learn, you first come by it's history from ancient time.

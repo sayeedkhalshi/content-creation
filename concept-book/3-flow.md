@@ -6,7 +6,7 @@ The reason I call it 'flow' because everything in our brain is like a flow, anyt
 
 Every flow has a frequency. If you synchronize with that frequency, we get into that flow. So, spiritually anyone trying get into divine world by matching the divine flow. (If we do that in a computer brain that is done by frequency as a data mapping point to connect logic, that would be a main flow or consciousness)
 
-## Main Flow
+## Main Flow In The Concept of AI
 
 I am unable to explain human main flow still, but I can talk about from the perspectives of an AI. But the base is everything a flow, flows are stories in our context. It creates all the properties of stories by creating layers of perspectives. That's basically mathematical definition of stories. Here's what i think.
 

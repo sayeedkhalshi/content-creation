@@ -1,12 +1,14 @@
 The care part is so strong in human beings that it’s the last part of social context. Or the highest level of social interaction. Along with hormone, this makes uncontrollable in some level. Sometimes I think what if nature is using hormone to control us the way we want to control AI.
 
-I named my learning model as The care chain for that reason.
+Outcome - of all other phase
+
+I named my learning model as The care chain for that reason. External and Internal. Hormonal Traps, Flow traps, compulsiveness
 
 But to understand the influence of care, we have to understand the basics of social context first.
 
 Someone asked, how do you make people do the things for you? How do you change people? How do you make people fall for you? The short and simple answer is, it’s easy. Are you trying to spread propaganda?
 
-What makes people care? A scientist would say, economics starts when people start caring. However, a person living in society will say economics starts when people care enough to lose some money.
+What makes people care? A scientist would say, economics starts when people start caring. However, a person living in society will say economics starts when people care enough to lose some money. Care scale
 
 A scientist would say, life is a game and money is the in-game reward. A person living in the society would say, “I decided to spend some money because I cared about the emotions that allowed me to lose it to gain emotional satisfaction. So my reward points aren’t money. I don’t see it as a game.”
 
@@ -23,3 +25,5 @@ Look, I have so many unpleasant issues with psychology.
 
 1. It shows a picture away from society that it totally missing the society now
    The full chain of narrative base learning
+
+You do not manipulate people on care level and try to influence act, but you can try influencing thoughts. Influencing act is hubris in care phase. But we all want to control the care phase of people to make them act for us. Instead we try to manipulate below care phase so care phase actions can be owned. Because care phase is the output we want to control, it's the result of all other phases.

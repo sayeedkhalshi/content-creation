@@ -1,0 +1,1 @@
+In sight family sounds like a control structure in itself. But in the macro scale of a country, families are a uncontrolled structure because it was created for cohesion of few peoples that can undermine broader authority.

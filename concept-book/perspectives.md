@@ -1,4 +1,12 @@
-A perspective is a system, a perspectie is a story. A logic isn't valid outside of that perspective
+A perspective is a system, a perspectie is a story. A logic isn't valid outside of that perspective.
+
+1. Perspectives makes story
+2. Perspectives connects topics and perspectives
+3. Perspectives is the only thing people learns when they learn, information and wording don't matter much.
+4. Without perspectives informations are useless.
+5. Learning is learning perspectives and skill is knowing a lot of perspectives.
+
+You see, deep down when you have a feeling, intuition, learning, it doesn't have a text attached to it. You can express a good portion of it using you full body vibe. People can get that easily and take that in instead of just words coming out.
 
 Multipurperspective- a lot of perspective to understand a topic for a Goal until you are confused. This is Learning confusion. There in app - Goal(people can create goal and all are available for others)- since a goal(mini, micro, big, huge goals) is Topics,
 

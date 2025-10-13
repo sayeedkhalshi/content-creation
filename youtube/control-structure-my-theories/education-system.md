@@ -40,3 +40,15 @@ Term - many many perspectives - every pespectives enhances
 Pride, it commits, commit high importance --> gambling on future, we call hope.
 
 positive predictibility - makes makes learning
+
+# Education system how it should be
+
+1. History - what
+2. Perspective - micro, macro, sideways - How
+3. physics properties - Where
+4. Human context - where
+5. Hidden flows, recommended flows
+6. Learning cycles
+7. Management
+8. Make it economical by adding action to it
+9.

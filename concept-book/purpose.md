@@ -1,0 +1,1 @@
+Purpose is a non-intentional flow. But instant purpose of real time tasks are intentional purpose. Since its a non intentional flow, means it runs in your character, you don't have to consciously command your action towards it. Its already you.

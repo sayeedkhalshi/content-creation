@@ -1,0 +1,1 @@
+1. Giving extra pressure because you are not going through the whole cycle of learning and neural connection is not there to support your action and you can't do it. So what you do is put pressure. That's the dependency of neural connections.

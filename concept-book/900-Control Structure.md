@@ -9,3 +9,13 @@ Instead of a set of a person, we can have a set of person where their character 
 Now we can easily calculate by operations on what happens when they interact. Basically how flows interacts altogether.
 
 Provider of the control structure must know the result of those interactions or they will lose control and replaced. He gotta make use of them, if he is unaware of those follows other considering, things will be unexpected and unexplanable
+
+## Community
+
+There is a misconception of confusing each others' goal as not same. We all trying to survive, breed, provide. Fundamental operations in the structures of intentional beings. Which is to confrm the continuity of the flow/story/narrative. Result of those operations are some fundamental communities like family. All resulted communities are management tools or control structures where humans are the elements.
+
+## The Weakest Point Paradox
+
+It came to mind that, it's not just objects and changes of them we needed to control. We needed to control other intentional being for their changes and outcomes too, taking our resources and controlling over us. Elements of a control structure ineracts to trade controls over each other. The biggest solution we can come up with, since we are a learning machine, we don't we use that to control each other. Which is why we use the learning cycle to make others acknowledge recommended flows.
+
+But this results to a much greater problem, the person in my recommended flow will have problems with their fundamental operations in society, which you call social mobility

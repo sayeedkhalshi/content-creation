@@ -1,4 +1,5 @@
 A learning system is a control structure.
+
 It has provider(creators and inforcers), users(community) and properties.
 
 ## Designing a learning system

@@ -1,0 +1,1 @@
+Social structure gives meaning to our relationships with anything. Relationships are basically acknowledged flows. Acknowldged flows are the definition of love, where you acknowledge and let those flows run your character.

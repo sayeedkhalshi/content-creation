@@ -1,0 +1,1 @@
+From the perspectives of intentional being (intelligence) humans are control structure. Basically a layer if you use layerism. Who develops layers based on cyclic actions and setting up limits, based on improvement using layerism and pendulum effect we produce learning that gives us better intention in the moment.

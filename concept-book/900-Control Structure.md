@@ -16,6 +16,6 @@ There is a misconception of confusing each others' goal as not same. We all tryi
 
 ## The Weakest Point Paradox
 
-It came to mind that, it's not just objects and changes of them we needed to control. We needed to control other intentional being for their changes and outcomes too, taking our resources and controlling over us. Elements of a control structure ineracts to trade controls over each other. The biggest solution we can come up with, since we are a learning machine, we don't we use that to control each other. Which is why we use the learning cycle to make others acknowledge recommended flows.
+It came to mind that, it's not just objects and changes of them we needed to control. We needed to control other intentional being for their changes and outcomes too, taking our resources and controlling over us. Elements of a control structure ineracts to trade controls over each other. The biggest solution we can come up with, since we are a learning machine, we use that to control each other. Which is why we use the learning cycle to make others acknowledge recommended flows.
 
 But this results to a much greater problem, the person in my recommended flow will have problems with their fundamental operations in society, which you call social mobility

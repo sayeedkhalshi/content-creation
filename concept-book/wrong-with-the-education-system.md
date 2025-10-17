@@ -6,13 +6,13 @@ Education systems supports these ideas, they may not necessarily creating these 
 
 2. The managers who wanted to be burocrats now in the place and filled the slots, so now new wannabe people can't get the place to seek rent. So they rebel. So social system can't provide for the rent seekers anymore. The elites and olders won't leave their places. You have to go somewhere else or fight back.
 
-3. Creates ptsd to learn by force learning when personnal narratives not fitting
+3. Creates ptsd to learn by force learning when personnal narratives not fitting - flow with meaning is a narrative - continuity - suggested continuity.
 
 4. By destroying learning pride so they don't become the base of their learning by shaming our intuition.
 
 5. By allowing panic level anxiety when narratives doesn't fit to unknown
 
-6. By regulating micro management, destrys creativity and mental strength, learning confidence and pride and makes base of learning weak. By providing inspiration, makes that feel like learning, a misconception.
+6. By regulating micro management, destroys creativity and mental strength, learning confidence and pride and makes base of learning weak. By providing inspiration, makes that feel like learning, a misconception.
 
 7. By information filtering with generalization, it breaks the rule of perspectives connection, doesn't let it become story, keeps of ongoing learning threads because of feel weird theory. By removing perspectives from books, ai, science. Where it's not possible, they use recommended flow to control the perspectives.
 
@@ -30,7 +30,7 @@ Education systems supports these ideas, they may not necessarily creating these 
 
 14. Doesn't tell how to act on learning and how to make the education system running in a care phase.
 
-15. Implements this from very early of childhood and things are so disconnected that a lot of hidden flows of threads keep running without being evaluated in the learning technique phase, keeps running recommended flows without getting noticed. So the intention are already blocked, desires are scattered.
+15. Implements this from very early of childhood and things are so disconnected that a lot of hidden flows of threads keep running without being evaluated in the learning technique phase, keeps running recommended pflows without getting noticed. So the intention are already blocked, desires are scattered.
 
 ## Singularity of Root cause
 
@@ -38,17 +38,23 @@ Education systems supports these ideas, they may not necessarily creating these 
 
 ## Process To Use For Solution
 
-1. Layerism
+1. Layerism - upgrading mechanism -
 
 ## Required Perspective
 
-1. Learning - People learns in every phase and changes and change causes the social structure collapse. So we think to see how what we makes us that
+1. Learning - People learns in every phase and changes and change causes the social structure collapse. So we think to see how what we makes us that - negative emotions towards those actors against us. As we learn.
 
 ## Solutions to a control structure
 
-1. Uncontrolled structure
+1. Uncontrolled structure based on learning
 
 ## Failing Reason Behind Application
 
-1. Generalization
+By pointig out the properties and operations and changes of a controlled structure and verify them so they are not manipulative in a negative way to control us
+
+Learning system -
+
+1. Generalization -
 2. Recommended Flow
+3. Story - perspctives
+4. Action phase or care in a education system

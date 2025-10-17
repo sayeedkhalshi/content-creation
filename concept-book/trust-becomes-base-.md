@@ -1,0 +1,1 @@
+Trust becomes base on learning since everyone is trying to take over with recommended flow and break trust, trust becomes so hard to find and until you can trust you or anyone, your base of learning is weak.

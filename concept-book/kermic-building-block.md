@@ -1,0 +1,1 @@
+The building blocks of human context is all our thoughts going through the learning cycle, chnaging us, influencing our style of actions and all our actions. So everybody's actions are built up to form the whole civilizational context. The network of perspectives and actions influecing them are similar to kermic network concept

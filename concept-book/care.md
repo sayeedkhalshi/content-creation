@@ -27,3 +27,9 @@ Look, I have so many unpleasant issues with psychology.
    The full chain of narrative base learning
 
 You do not manipulate people on care level and try to influence act, but you can try influencing thoughts. Influencing act is hubris in care phase. But we all want to control the care phase of people to make them act for us. Instead we try to manipulate below care phase so care phase actions can be owned. Because care phase is the output we want to control, it's the result of all other phases.
+
+## Holds
+
+Care phase holds -- action, speculation, intentions
+also economics, religion,
+Also spiritually, it hold test for divine correction.

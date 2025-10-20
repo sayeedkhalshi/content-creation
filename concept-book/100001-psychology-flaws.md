@@ -4,4 +4,4 @@
 
 3. Generalization of experiences
 
-4. A system can't be proven, if its keep building. For a intentional being, its always building.From individuals to civilizational.
+4. A system can't be proven, if its keep building. For a intentional being, its always building. From individuals to civilizational.

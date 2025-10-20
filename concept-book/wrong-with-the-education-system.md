@@ -4,9 +4,15 @@ Education systems supports these ideas, they may not necessarily creating these 
 
 1. Creates work that has no value, by promising value without work later, creates rent seeking behaviors, burocracy and management hazard resulting in authoratarian behaviors. Deep down students wants to be managers like the teachers. Resulting the collapse of social structure. Social structure is the reason behind civilizational reset.
 
-2. The managers who wanted to be burocrats now in the place and filled the slots, so now new wannabe people can't get the place to seek rent. So they rebel. So social system can't provide for the rent seekers anymore. The elites and olders won't leave their places. You have to go somewhere else or fight back.
+The managers who wanted to be burocrats now in the place and filled the slots, so now new wannabe people can't get the place to seek rent. So they rebel. So social system can't provide for the rent seekers anymore. The elites and olders won't leave their places. You have to go somewhere else or fight back.
+
+2. Systems are channel to regulate us. A tool to regulate growth. Regulation is power. Because of some social structure or position you are legally allowed to regulate people. This means an submissive acknowledgement. One of them is simplification or simplified content, making people depend on my explanation, giving us the oppurtunity to put our recommendation in people, halting their possibility of approach complexity, then teaches us how to approach complexity. This results to not work and hope other people to do it for you. With PTSD to learning this makes us mentally paralyzed
 
 3. Creates ptsd to learn by force learning when personnal narratives not fitting - flow with meaning is a narrative - continuity - suggested continuity.
+
+Learning Flows -- character - story - vibes of expression --> support purpose - story - creating a new perspective - decision -
+
+Purpose is instant- purpose isn't a life goal.
 
 4. By destroying learning pride so they don't become the base of their learning by shaming our intuition.
 
@@ -16,7 +22,7 @@ Education systems supports these ideas, they may not necessarily creating these 
 
 7. By information filtering with generalization, it breaks the rule of perspectives connection, doesn't let it become story, keeps of ongoing learning threads because of feel weird theory. By removing perspectives from books, ai, science. Where it's not possible, they use recommended flow to control the perspectives.
 
-8. Doesn't care about 'care scale' and make us do things we don't care, makes us feel stuck in this world. It only focuses on care phase. Outcome
+8. Doesn't care about 'care scale' and make us do things we don't care, makes us feel stuck in this world. It only focuses on care phase.
 
 9. By making life goals as purpose when purpose is instant task and results of that instant tasks keep upgrading goals.
 

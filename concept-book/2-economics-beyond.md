@@ -166,7 +166,7 @@ True chaos is actual definition of deception in human context. That a pattern is
 
 ## The community theory
 
-In a control structure a community flows ends in interactions. Community is a cohesion, a way to synchronize their goal among everyone. But the moment there is a cheating, even if it's not told or known to anyone, it will break interbrain synchronicity. one person
+In a control structure community flows ends in interactions. Community is a cohesion, a way to synchronize their goal among everyone. But the moment there is a cheating, even if it's not told or known to anyone, it will break interbrain synchronicity. one person
 
 In interaction, the suggestion from narrative sounds like a intuition. In a control structure, your intuition can be used to track down your progress in a control structure and feed you perspectives based on that.
 
@@ -174,4 +174,4 @@ You see it's deception because a control structure and we needed to put people o
 
 # Users
 
-What happens when users are fighting in a control structure, people want them to become controllabke by each other, so each other usually associate with each other, but the trick is being dissassociative and that's what we do as grow and be more intelligent.
+What happens when users are fighting in a control structure, people want them to become controllable by each other, so each other usually associate with each other, but the trick is being dissassociative and that's what we do as grow and be more intelligent.

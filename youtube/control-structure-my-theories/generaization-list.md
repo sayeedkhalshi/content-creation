@@ -1,5 +1,7 @@
 Generalization means removing perspectives. Its non human and evil. It has a measurement scale and it varies.
 
+Feel Weird Theory - ?? A frozen robot --> intllectual freeze
+
 1. Formality
 2. Hiding Personal Story
 3. Textbook, AI text

@@ -2,4 +2,5 @@ A control structure is actually a learning system. A control structure is built 
 
 Intelligent is a control structure to control the outcome of changes. Basically management in one word.
 
-The reason we need to look at psychology from learning perspectives because humans are control structure. Basically layers
+The reason we need to look at psychology from learning perspectives because humans are control structure. Basically layers will make the personal model of human context for everyone, so now people can all be
+predicting accurately and we all will become wise.

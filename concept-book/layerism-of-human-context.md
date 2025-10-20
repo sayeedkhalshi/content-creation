@@ -14,3 +14,5 @@ So your intuitive learning cycle management will automatically do it for you wit
 Since intention shapes your actions, you stop being intentional, your layerism can predict on it's own for your next move, thoughts etc based on all your layers. That you also can called story building or narrative building.
 
 Which will feel like a divine flow telling you what to do in the moment. Basically Allah or if you think those are just our brains in layers talking, it does always become accurate than your hormonally influenced intentions.
+
+This way if you keep connecting your layers/concepts and use them to predict or explain other each others, you will keep building the model of your human context.

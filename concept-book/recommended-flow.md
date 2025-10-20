@@ -2,6 +2,9 @@
 
 Recommended flow is the alcohol of human context. Acknowledgement is so hormonally rewarding that, we seek for it in all incoming recommended flow.
 
+1. Greatest Recommended flow - Learning Technique or How to think. Example - Money, Religion. Think of the implications of those flows.
+   These Human Context Level Recommended Flows
+
 The world is confusing, and you usually can’t think micro enough only to get biased in situations like this. We don’t have the social language to communicate depth like that.
 
 With confusion, it adds fear and weakness. Then also the world is risky like this. Yet who are teaching us those complex things? Who are the engineers of us? Why are there so many depths of mental structures?

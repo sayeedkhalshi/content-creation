@@ -2,6 +2,8 @@ There is a unconscious mind as big as everything and it acts like a god. It thin
 
 ## Main flow for human context (not brain or ai)
 
+Main flow is the proof everyone can learn. It gos through the whole learning cycle even you don't do it for other topics. For example - the story in main flow makes you think, overwhelmed, broke up, then come back to think about it again. But most people fail to gr through the whole learning cycle in other topics in life just because they think of learning break up as just a limitation of their ability. Hope has PTSD for them and forgets to speculate.
+
 Since the nature suggests of single state of action, our context will have a main flow everything in it will have a main flow.
 
 Since it's all about controlling flows and we all create are control structure and we can't create a non control structure, it's all just mimicking of the idea of a uncontrolled structure, deep down it's still a conrol structure and deception happens by the providers.

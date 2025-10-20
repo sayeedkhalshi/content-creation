@@ -1,0 +1,3 @@
+Money is a rule in the control structure. Money isn't a property of the structure. Money is a structure itself and it sets rule in interaction.
+
+Basically money is an enhanced interaction rule like sacredness. Its can be put as a feeling in the feel theory (good, bad, weird, sacred, money-poor rich). But poor and rich is a made up feelings like, not fundamental. Which says how big of a recommended flow it is. Money is used to regulate people's feeling over power. So you think you earn money to have power. But actually power gives you money, money doesn't give you power. It's an ultimate illusion created to regulate our motive in the care phase.

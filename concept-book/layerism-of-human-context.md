@@ -15,4 +15,4 @@ Since intention shapes your actions, you stop being intentional, your layerism c
 
 Which will feel like a divine flow telling you what to do in the moment. Basically Allah or if you think those are just our brains in layers talking, it does always become accurate than your hormonally influenced intentions.
 
-This way if you keep connecting your layers/concepts and use them to predict or explain other each others, you will keep building the model of your human context.
+This way if you keep connecting your layers/concepts and use them to predict or explain each others, you will keep building the model of your human context. You will be building your own personal framework and we can see how similar or different we are.

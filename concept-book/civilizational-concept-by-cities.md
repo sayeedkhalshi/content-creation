@@ -1,0 +1,5 @@
+The concept of civilization is cities and it's also dead wrong. The cities are unnatural and suppose to cause chaos and destruction because of control structure rules. It's the fight between base of learning and power moves.
+
+No one tells you the difference between them. Keep the pride and remove the power moves. Power moves doesn't come from feeling of insecurity. Psychology keeps telling us we feel insecure. We don't feel insecure, its negative feelings and we can't observe negative in us (feel bad), then it instantly move towards learning or analysis phase when negative feelings comes. Then on top of that, it makes you feel only bad, not insecure as it is high level description of bad feelings. It's a built in systemetic recommended flows.
+
+If we belive that it's a feeling, we associate our bad feelings with it and feel bad. The rule of feel bad, you don't face it and the flow stays. Flow stays as habit as long as you don't see how it's a flow not feelings. So insecurity stays and keeps isolating us.

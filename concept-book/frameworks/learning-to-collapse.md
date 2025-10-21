@@ -1,0 +1,1 @@
+As a learning machine we learn, because of control structure we control, because of pride being a flow makes us feel dominant, we learn in the end, it's a fight. We lose the structure of society and chaos takes over and civilization breaks down.

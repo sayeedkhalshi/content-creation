@@ -2,8 +2,18 @@
 
 1. Flaws Of Psychology / Death By Psychology
 2. Wrong With Education System / Death By Education System
-3. Why Can't You Learn - Force Learning, Anxiety and Action Projection Framework
-4.
+3. Dilemma Of anxiety - Why Can't You Learn - Force Learning, Anxiety and Action Projection Framework
+4. Death By Intention
+5. Death By misconception of learning
+6. Saved By story
+7. Saved by perspective
+8. Saved by layerism
+9. Death By Control Structure
+10. Death By Recommended flow
+11. Beauty of following Learning cycle
+12. Limit of cohesion
+13. Death by cycle
+14. Death by wording
 
 # Learning cycles
 

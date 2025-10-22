@@ -5,3 +5,5 @@
 3. Generalization of experiences, whch makes people believe true because of teh sacredness of science. Even though they could be discarded easily, unnecesary acknowledgements makes us drown in them.
 
 4. A system can't be proven, if its keep building. For a intentional being, its always building. From individuals to civilizational. Its a learning experience and no story needs to be proved. So let everyone build their own personal framework.
+
+5. The problem with sciences, they wanted to do innovation with math, cause they don't believe in intuition and ideas coming in. So without waiting for idea to come, they choose brute forcing. Now they can't do math in psychology, so it became a boring subject. Where it could be only subject ever exists.

@@ -1,3 +1,10 @@
+# Syllabus Of Human Context
+
+1. Flaws Of Psychology / Death By Psychology
+2. Wrong With Education System / Death By Education System
+3. Why Can't You Learn - Force Learning, Anxiety and Action Projection Framework
+4.
+
 # Learning cycles
 
 He has an idea - had an intention -- he has to learn info --> when taking

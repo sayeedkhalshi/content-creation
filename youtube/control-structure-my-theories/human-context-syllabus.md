@@ -1,19 +1,60 @@
 # Syllabus Of Human Context
 
-1. Flaws Of Psychology / Death By Psychology
-2. Wrong With Education System / Death By Education System
-3. Dilemma Of anxiety - Why Can't You Learn - Force Learning, Anxiety and Action Projection Framework
-4. Death By Intention
-5. Death By misconception of learning
-6. Saved By story
-7. Saved by perspective
-8. Saved by layerism
-9. Death By Control Structure
-10. Death By Recommended flow
-11. Beauty of following Learning cycle
-12. Limit of cohesion
-13. Death by cycle
-14. Death by wording
+## Secret Manipulations
+
+1. Birth Of Intentionalism - done
+2. Beauty Of Learning Cycle - done
+3. Death By Control Structure - done
+4. Death By Recommended flow - done
+5. Flaws Of Psychology / Death By Psychology - Done
+6. Wrong With Education System / Death By Education System - Done
+7. Dilemma Of anxiety - Why Can't You Learn - Done
+8. Force Learning,- Done
+9. Magic Of perspectives - done
+10. Limit of cohesion - done
+11. Action Projection Framework - Why can't you learn
+12. Death By Intention
+13. Death By misconception of learning
+14. Saved By story - done
+15. God's Will: Redesign education systemm - done
+16. Fight among Status' -done
+17. Saved by layerism
+18. Death by cycle - done
+19. Death by wording - done
+20. Rethinking The economics
+21. Death by mismanagement -
+22. Death by computers -
+23. Learning Manipulation by Filmmaking - done
+24. How To Be A Wise Scientist
+25. How to build the "home - interaction medium" for the truth seekers
+26. Single State Action Mind
+27. Ignored By Spirituality - not allowing pride
+28. Myth Created By Status - to keep charisma we need to exaguarete
+29. The wait for the moment, build up is necessary
+
+# Done list
+
+Secret Control 1 - Birth Of Intentionalism
+Secret Control 2 - Beauty Of Learning Cycle
+Secret Control 3 - Death By Control Structure
+Secret Control 4 - Learning By Recommended Flow
+Secret Control 5 - Death By Psychology
+Secret Control 6 - Death By Education
+Secret Control 7 - Villanization Of Anxiety
+Secret Control 8 - Death By Force Learning
+Secret Control 9 - Magic Of Perspectives
+Secret Control 10 - Limit Of Cohesion
+Secret Control 11 - The Mystique Perspective Of Story
+Secret Control 12 - Gods Will Devils Desire and Dismantling Education System
+Secret Control 13 - A Problem And Power Of Purpose
+Secret Control 14 - A Solution To The Fight Among The Status
+Secret Control 15 - The Devils Plan And The Curse Of Wording
+Secret Control 16 - Parallel World Of Karmic Network
+Secret Control 17 - The End In Family Hubris And Grudge
+Secret Control 18 - Introduction To Dumbness
+Secret Control 19 - Suffering Of The Truth Seekers
+Secret Control 20 - Birth Of Therapy And Breakup In Action
+Secret Control 21 - Learn Manipulation By Filmmaking
 
 # Learning cycles
 

@@ -1,18 +1,14 @@
 ## Problems with education system
 
-Education systems supports these ideas, they may not necessarily creating these rules, rules can already be coming from society or they are creating the values in society.
+Education systems supports these ideas, they may not be necessarily creating these rules, rules can already be coming from society or they are creating the values in society.
 
 1. Creates work that has no value, by promising value without work later, creates rent seeking behaviors, burocracy and management hazard resulting in authoratarian behaviors. Deep down students wants to be managers like the teachers. Resulting the collapse of social structure. Social structure is the reason behind civilizational reset.
 
 The managers who wanted to be burocrats now in the place and filled the slots, so now new wannabe people can't get the place to seek rent. So they rebel. So social system can't provide for the rent seekers anymore. The elites and olders won't leave their places. You have to go somewhere else or fight back.
 
-2. Systems are channel to regulate us. A tool to regulate growth. Regulation is power. Because of some social structure or position you are legally allowed to regulate people. This means an submissive acknowledgement. One of them is simplification or simplified content, making people depend on my explanation, giving us the oppurtunity to put our recommendation in people, halting their possibility of approach complexity, then teaches us how to approach complexity. This results to not work and hope other people to do it for you. With PTSD to learning this makes us mentally paralyzed
+2. Systems are channel to regulate us. A tool to regulate growth. Regulation is power. Because of some social structure or position you are legally allowed to regulate people. This means an submissive acknowledgement. One of them is simplification or simplified content, making people depend on my explanation, giving us the oppurtunity to put our recommendation in people, halting their possibility of approach complexity, then teaches us how to approach complexity. This results to not work and hope other people to do it for you. With PTSD to learning this makes us mentally paralyzed.
 
 3. Creates ptsd to learn by force learning when personnal narratives not fitting - flow with meaning is a narrative - continuity - suggested continuity.
-
-Learning Flows -- character - story - vibes of expression --> support purpose - story - creating a new perspective - decision -
-
-Purpose is instant- purpose isn't a life goal.
 
 4. How we alienate our working or learning hide from others.
 
@@ -48,9 +44,9 @@ If we belive that it's a feeling, we associate our bad feelings with it and feel
 
 15. Never let you complete learning cycles. Doesn't let you know what are the phases, why each phases, how they are dveloped.
 
-16. Doesn't tell how to act on learning and how to make the education system running in a care phase.
+16. Doesn't tell how to act on learning and how to make the education system running in a care phase. Below care phase --> we care or not care doesn't have a value in economics, it stays below care phase --> We need make education system really on the care phase --> direct impact economics. We actually don't need system, we actually need working system would literally have associated all your learning. Stuck doing something, you are learning, secondary act. education should be actually,
 
-17. Implements this from very early of childhood and things are so disconnected that a lot of hidden flows of threads keep running without being evaluated in the learning technique phase, keeps running recommended pflows without getting noticed. So the intention are already blocked, desires are scattered.
+17. Implements this from very early of childhood and things are so disconnected that a lot of hidden flows of threads keep running without being evaluated in the learning technique phase, keeps running recommended flows without getting noticed. So the intention are already blocked, desires are scattered.
 
 ## Singularity of Root cause
 

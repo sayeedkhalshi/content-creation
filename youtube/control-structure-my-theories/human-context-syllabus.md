@@ -31,6 +31,21 @@
 27. Ignored By Spirituality - not allowing pride
 28. Myth Created By Status - to keep charisma we need to exaguarete
 29. The wait for the moment, build up is necessary
+30. Forceful cohesion and death of individuality
+31. Conflict between intentionalism and spirituality
+32. Birth of the Game
+33. Narrative engineering and purpose engineering
+34. Why deception and corruption is the way
+35. Why Micro cycle of collapse is so obvious
+36. How to use empathy and personal narrative
+37. Social structure and social construct
+38. Intro to spirituality - fundamental building blocks of universe and probability
+39. All the networks in human context interacting
+40. How everything is alive
+41. Biggest knowledge on earth is knowing how idea evolves through application and events
+42. Economics Beyond
+43. IBN Arabi, Neitshe, Abdul Kadir Jilani (PBUH)
+44. Why people don't like thinking in the moment real time as that is spiritual god is talking. Brings intentionalism
 
 # Done list
 

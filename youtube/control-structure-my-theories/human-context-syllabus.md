@@ -29,23 +29,28 @@
 25. How to build the "home - interaction medium" for the truth seekers
 26. Single State Action Mind
 27. Ignored By Spirituality - not allowing pride
-28. Myth Created By Status - to keep charisma we need to exaguarete
-29. The wait for the moment, build up is necessary
-30. Forceful cohesion and death of individuality
-31. Conflict between intentionalism and spirituality
-32. Birth of the Game
+28. Myth Created By Status - to keep charisma we need to exaguarete - ongoing
+29. The wait for the moment, build up is necessary - done
+30. Forceful cohesion and death of individuality - ongoing
+31. Conflict between intentionalism and spirituality - done
+32. Birth of the Game - ongoing
 33. Narrative engineering and purpose engineering
-34. Why deception and corruption is the way
-35. Why Micro cycle of collapse is so obvious
-36. How to use empathy and personal narrative
-37. Social structure and social construct
-38. Intro to spirituality - fundamental building blocks of universe and probability
+34. Why deception and corruption is the way - ongoing
+35. Why Micro cycle of collapse is so obvious - ongoing
+36. How to use empathy and personal narrative - ongoing
+37. Social structure and social contract - ongoing
+38. Intro to spirituality - fundamental building blocks of universe and probability - ongoing
 39. All the networks in human context interacting
-40. How everything is alive
-41. Biggest knowledge on earth is knowing how idea evolves through application and events
-42. Economics Beyond
+40. How everything is alive - ongoing
+41. Biggest knowledge on earth is knowing how idea evolves through application and events - ongoing
+42. Economics Beyond - ongoing
 43. IBN Arabi, Neitshe, Abdul Kadir Jilani (PBUH)
-44. Why people don't like thinking in the moment real time as that is spiritual god is talking. Brings intentionalism
+44. Philosophy is mathematics of human context - ongoing
+45.
+46. Why people don't like thinking in the moment real time as that is spiritual god is talking. Brings intentionalism - ongoing
+47. How to create a personal framework and framework for other topics
+48. Rethinking the economics
+49. Desigining the home interaction medium
 
 # Done list
 
@@ -70,6 +75,7 @@ Secret Control 18 - Introduction To Dumbness
 Secret Control 19 - Suffering Of The Truth Seekers
 Secret Control 20 - Birth Of Therapy And Breakup In Action
 Secret Control 21 - Learn Manipulation By Filmmaking
+Secret Control 22 - Ignored By Spirituality
 
 # Learning cycles
 
